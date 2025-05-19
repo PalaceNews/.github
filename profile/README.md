@@ -1,4 +1,4 @@
-## Hi there 👋
+# Palacebet 2025 👋
 
 # <a href="https://cutt.ly/palace2025-giris" title="Palacebet Giriş Adresi"> 🔗 Palacebet Giriş İçin Hemen Tıklayın! 🔗</a>
 
